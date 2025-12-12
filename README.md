@@ -32,3 +32,4 @@
    ```
 
 ## 🚀 使用教程
+<img width="1684" height="1308" alt="image" src="https://github.com/user-attachments/assets/f7017230-cd61-484c-a47e-b2c8a381f143" />
